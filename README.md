@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Competitive Programming or tech**
 
-- 📫 How to reach me **srijanna.2002@gmail.com**
+- 📫 How to reach me **v4vishal7g@gmail.com**
 
 - ⚡ Fun fact **i love meet new people and sit in my laptop**
 
